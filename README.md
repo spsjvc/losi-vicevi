@@ -27,3 +27,7 @@
 > Kako se zove omiljena hrana vampira?
 >
 > **Vampire krompir**
+
+> Kako se zove međunarodni sud za pse?
+>
+> **Haski tribunal**
