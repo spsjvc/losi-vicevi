@@ -31,3 +31,7 @@
 > Kako se zove međunarodni sud za pse?
 >
 > **Haski tribunal**
+
+> Kako se zove Obrad kad se obrije?
+>
+> **Golobrad**
