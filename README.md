@@ -24,6 +24,10 @@
 >
 > **Gari Poter**
 
+> Kako se zove kviz sa pitanjima iz serijala o Hari Poteru?
+>
+> **Hari Potera**
+
 > Kako se zove omiljena hrana vampira?
 >
 > **Vampire krompir**
