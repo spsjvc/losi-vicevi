@@ -39,3 +39,7 @@
 > Kako se zove Obrad kad se obrije?
 >
 > **Golobrad**
+
+> Šta kaže jedan odžak (dimnjak) drugome kad se sretnu u gradu posle dugo vremena?
+>
+> **"Ništa brate, chimney me nekad pa se vidimo."**
